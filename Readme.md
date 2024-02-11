@@ -1,0 +1,4 @@
+- Name: S.SAM PERINBA NAYAGAN
+- Email: sampn91@gmail.com
+- Batch: FSD56WD2-T
+- Day-5-Tasks-1&2-With Output Screenshots
